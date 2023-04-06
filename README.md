@@ -8,7 +8,7 @@
 
 
     
-##  Data Science Technical Mentor at Chaptr Global | Data Analytics Consulting at EY 
+## Data Analytics Consulting at EY |  Data Science Technical Mentor at Zindua School 
 >Christopher is an innovative and strategic thinker who seeks to anticipate the future and change to align
 himself with the projected needs. He is a great team player who can work with anyone to accomplish the set
 objectives of the company. Has the desire to learn more from others and also implement the various skills 
